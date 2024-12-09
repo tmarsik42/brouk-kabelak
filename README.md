@@ -1,4 +1,4 @@
-# 🌟 **Brouk Kabelák 2: Legenda, která neměla vzniknout** 🪲  
+# 🌟 **Brouk Kabelák: Legenda, která neměla vzniknout** 🪲  
 
 Hospoda vypadala úplně normálně. Trochu špinavé ubrusy, vrchní znuděně civící do prázdna, starý Franta chrápal v rohu. Prostě klasika. A najednou… **PRÁSK!** 🚪 Do dveří vtrhne týpek, co vypadá, jako by přišel buď z apokalypsy, nebo z hodně divnýho večírku. 🤔  
 
